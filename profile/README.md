@@ -1,6 +1,6 @@
 ![banner](https://user-images.githubusercontent.com/50910456/227233755-214745e7-edbd-4194-94a5-fa5fca5784be.png)
 
-#### 멋진 로고와 배너를 만들어준 Zam, Theo 너무 감사해요 :)
+#### 멋진 로고와 배너를 만들어준 Theo, Zam 너무 감사해요 :)
 
 ---
 
